@@ -29,9 +29,9 @@
 
 ## 📬 ช่องทางการติดต่อ (Contact Information)
 
-* 📧 **อีเมลสถานศึกษา:** [68219010003@kbtc.ac.th](mailto:68219010003@kbtc.ac.th)
-* 💬 **Discord:** heartjetnipat
-* 📸 **Instagram (ติดต่อส่วนตัว):** [pxherzt_053](https://instagram.com)
+* 📧 **อีเมลสถานศึกษา:** (mailto:68219010003@kbtc.ac.th)
+* 💬 **Line:** heartjetnipat
+* 📸 **Instagram (ติดต่อส่วนตัว):** pxherzt_053
 
 ---
 <div align="center">
