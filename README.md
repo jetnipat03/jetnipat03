@@ -22,5 +22,5 @@
 
 ## 📬 ช่องทางการติดต่อ (Contact Me)
 * 📧 **อีเมล:** 68219010003@kbtc.ac.th
-* 💬 **Discord / Line:** heartjetnupat
+* 💬 **Discord / Line:** heartjetnipat
 * 🌐 **Social Media:** ig : pxherzt_053
